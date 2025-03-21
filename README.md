@@ -1,4 +1,4 @@
-## Hi there 👋
+## MENJELANG LEBARAN DI TAHUN 2025👋
 
 <!--
 **KangG4cor/KangG4cor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
